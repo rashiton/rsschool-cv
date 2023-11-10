@@ -1,1 +1,1 @@
-# rsschool-cv
+https://rashiton.github.io/rsschool-cv/cv
